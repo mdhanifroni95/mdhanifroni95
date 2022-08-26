@@ -20,7 +20,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/mdhanifroni95/](https://www.linkedin.com/in/mdhanifroni95/)
 
-- ⚡ Fun fact **Funny And Serially My Duty**
+- ⚡ Fun fact **Funny And Seriously My Duty**
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
